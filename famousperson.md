@@ -1,6 +1,6 @@
 # Playboi Carti
 
-![Playboi Carti]([https://en.wikipedia.org/wiki/File:Playboi_Carti,_Clout_Festival_2024_05_(cropped).jpg)
+![Playboi Carti](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0f/Playboi_Carti%2C_Clout_Festival_2024_05_%28cropped%29.jpg/800px-Playboi_Carti%2C_Clout_Festival_2024_05_%28cropped%29.jpg)
 Playboi Carti (born Jordan Terrell Carter, September 13, 1996) is an American rapper, singer, and songwriter known for his experimental music style and avant-garde approach to hip-hop. Emerging in the mid-2010s, Carti quickly gained popularity with his debut mixtape, followed by chart-topping albums that showcased his signature "baby voice" delivery and eclectic production.
 
 Hailing from Atlanta, Georgia, Carti first gained attention with his self-titled mixtape in 2017, featuring hits like *Magnolia* and *Wokeuplikethis*. His debut studio album, *Die Lit* (2018), was both a commercial and critical success, blending punk-inspired energy with trap beats. In 2020, Carti released *Whole Lotta Red*, which debuted at No. 1 on the Billboard 200 and solidified his place as one of hip-hop’s most innovative figures.
